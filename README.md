@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking for training in a company to earn some real experience
-- 📫 You can reach me throw my personal email(nadoosh462004@gmail.com) 
+- 📫 You can reach me throw my personal email(nadiabader0446@gmail.com) 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
